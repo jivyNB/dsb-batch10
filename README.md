@@ -12,4 +12,4 @@ My data science and analytics projects
 reach out to me at
 
 ## Image
-![Abra](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSM5ItRKYOIl1qxcjW4k99X2rJ6i1Z6RK0LCA&s)
+![Deadpool](https://www.denofgeek.com/wp-content/uploads/2020/11/webstory-deadpool-image06-1.jpg)
